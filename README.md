@@ -1,0 +1,1 @@
+Valutaválto
